@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Shivkanya Madansure
-**A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
+**A passionate Data Science & Data Analytics || python,SQL,PBI|| Always learning & Building**
 
 Email Me 👉 ✉️ **shivkanyamadansure@gmail.com.com** For Collaboration/Project or Anything Else. 😊😊
 
